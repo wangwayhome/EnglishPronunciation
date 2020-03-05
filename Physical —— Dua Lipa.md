@@ -5,14 +5,14 @@
 
 
 
-​                              /tə/ 
-Who needs to go to sleep when I got you next to me?⠀⠀⠀⠀⠀⠀⠀⠀ 
+​                               
+Who needs to go to sleep when I got /tə/ you next to me?⠀⠀⠀⠀⠀⠀⠀⠀ 
 
-​                /aɪ.ɪl/    /ˈraɪ.ə/     /wɪ juː/
-All night,   I'll         riot       with you. 
+​                       
+All night,   I'll /aɪ.ɪl/        riot /ˈraɪ.ə/       with you/wɪ juː/. 
 
-​             /juː/                    /bæk ən/                              /ɡɑːtʃɪl/
- know  you  got   my    back and    you   know I   got  you.
+​                                                             
+ know  you /juː/   got   my    back and /bæk ən/   you   know I   got you/ɡɑːtʃɪl/.
 
 So come on, come on, come on.
 
